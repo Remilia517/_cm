@@ -1,0 +1,1 @@
+[使用chatgpt完成程式碼](https://chatgpt.com/share/6957faba-8ccc-8013-8bcb-f071a447917a)
