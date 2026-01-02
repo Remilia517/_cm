@@ -1,0 +1,1 @@
+[使用chatgpt產生程式碼，並經過理解和修改](https://chatgpt.com/share/6957b44a-857c-8013-a4ae-3fadbdce3110)
