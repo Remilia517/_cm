@@ -1,0 +1,1 @@
+[使用chatgpt完成程式碼並理解](https://chatgpt.com/share/69590618-0264-8013-97d4-ce0e07f3ddc4)
