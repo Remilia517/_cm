@@ -1,0 +1,1 @@
+使用chatgpt完成[問答和程式碼](https://chatgpt.com/share/6959097a-fa18-8013-ab81-04f8040bbc73)，但繳交作業時尚未完全理解。
